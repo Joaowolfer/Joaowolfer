@@ -1,4 +1,4 @@
-### Nós viemos da por**, mas somos por** nenhuma... 🥰
+### Se você busca muito alguma coisa, é certo que deixará outras no meio do caminho...
 
 <!--
 **Joaowolfer/Joaowolfer** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
